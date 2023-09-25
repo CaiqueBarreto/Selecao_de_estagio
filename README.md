@@ -1,2 +1,0 @@
-# estagioselecao
-seleção de estágio
